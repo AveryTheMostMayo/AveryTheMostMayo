@@ -1,5 +1,5 @@
-# ᨳㅤ݂ㅤ꯭🍀ᰍㅤ꒰ㅤᴡᴇʟᴄᴏᴍᴇㅤ꒱ㅤ꯭ㅤഒ
-_**M**y  name ' s  Avery  ( or  Rafael  ! )  ,  pronouns  he / him  &  they / them  !_
+# ᨳㅤ݂ㅤ꯭🌑ᰍㅤ꒰ㅤᴡᴇʟᴄᴏᴍᴇㅤ꒱ㅤ꯭ㅤഒ
+_**M**y  name ' s  Ivan  ( or  Avery )  ,  pronouns  he / him  &  they / them  ._
 
 <img width="734" height="285" alt="a96eafbe10c9baf0974ff236b151c7ce (1)" src="https://github.com/user-attachments/assets/50950f2f-c155-4154-964a-1f677dd8c75a" />
 
